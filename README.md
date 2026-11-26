@@ -2,7 +2,7 @@
 
 ###
 
-<img data-importer="image" align="right" height="150" src="[https://i.imgflip.com/65efzo.gif](https://tenor.com/pt-BR/view/redmura-airshipassault-airship-assault-grenland-vaughray-gif-2083680119163889594)"  />
+<img data-importer="image" align="right" height="150" src"https://media1.tenor.com/m/HOq4B1BOp7oAAAAC/redmura-airshipassault.gif"  />
 
 ###
 
