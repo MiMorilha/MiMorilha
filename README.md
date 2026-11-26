@@ -2,7 +2,7 @@
 
 ###
 
-<img data-importer="image" align="right" height="150" src="<div class="tenor-gif-embed" data-postid="2083680119163889594" data-share-method="host" data-aspect-ratio="1.79137" data-width="100%"><a href="https://tenor.com/view/redmura-airshipassault-airship-assault-grenland-vaughray-gif-2083680119163889594">Redmura Airshipassault GIF</a>from <a href="https://tenor.com/search/redmura-gifs">Redmura GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>"  />
+<img data-importer="image" align="right" height="150" src="https://tenor.com/pt-BR/view/redmura-airshipassault-airship-assault-grenland-vaughray-gif-2083680119163889594"  />
 
 ###
 
